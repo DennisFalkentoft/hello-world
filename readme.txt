@@ -1,1 +1,1 @@
-blablabla One Piece is great XD
+blablabla One Piece is great XD. In Oda I trust
